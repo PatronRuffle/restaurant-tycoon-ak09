@@ -1,4 +1,4 @@
-#  
+#  restaurant tycoon 3 Scripts hidden offers the most advanced restaurant tycoon 3 Script, with infinite resources and auto-sell. Perfect for dominating
 
 
 
